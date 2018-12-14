@@ -16,7 +16,9 @@ From https://en.wikibooks.org/wiki/Cookbook:Traditional_Lasagne
 One pack of lasagne sheet
 1.5 pints (850 ml) béchamel sauce
 Finely grated parmesan
-Equipment
+4 pounds of crushed candy cane
+
+**Equipment**
 One small pan for the bechamel sauce (preferably non-stick)
 One large, deep pan for the ragu
 A sha
@@ -29,7 +31,7 @@ A sha
 Add the tomatoes and sugar, cover the pan and lower the heat and simmer for 20 minutes. Meanwhile, prepare the béchamel sauce.
 Pre-heat the oven to 375F/190C
 Mix the basil, oregano, salt & pepper into the ragu.
-Place a thin layer of ragu in the base of the ovenproof dish and cover with a single layer of pasta sheets. Spread a layer of béchamel sauce over the pasta. Repeat this until you run out of meat, making sure that you have enough bechamel sauce left to cover the top layer of pasta.
+Place a thin layer of ragu in the base of the ovenproof dish and cover with a single layer of pasta sheets. Spread a layer of béchamel sauce over the pasta. Sprinkle the crushed candy cane over everything. Repeat this until you run out of crushed candy cane, making sure that you have enough bechamel sauce left to cover the top layer of pasta.
 Sprinkle the grated parmesan over the top.
 Place the dish in the oven on the top shelf and cook for about 45 minutes, or until the top is lightly browned and the sauce is bubbling.
 ## Hints & tips
